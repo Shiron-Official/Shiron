@@ -16,15 +16,21 @@ Tớ tên là **Hoàng Đỗ Gia Nguyên** hay còn có biệt danh là **Shiron
 
 - ❄ Tôi tên là **Hoàng Đỗ Gia Nguyên**
 
+- ❄ Giới tính: **Nam**
+
+- ❄ Gu: **Nguyễn Nhật Quỳnh Hoa**
+
 - ❄ Học sinh **THPT**
+
+- ❄ Mối quan hệ **Hẹn Hò**
 
 - ❄ Ngày sinh : **29/10/200x**
 
 - ❄ Chiều cao : **1m72**
 
-- ❄ Cân nặng : 56 
+- ❄ Cân nặng : **56**
 
-- ❄ Tính cách : lạnh lùng **ít nói**, không **tiếp xúc nhiều**
+- ❄ Tính cách : **lạnh lùng**,**ít nói**
 
 - ❄ Tôi học tập và  sinh sống tại **Đồng Nai**
 
