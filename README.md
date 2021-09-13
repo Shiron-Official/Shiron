@@ -1,6 +1,6 @@
 <h1> Xin chào <img src="https://i.imgur.com/sl26aUs.gif" width="25"></h1> 
 
-Tớ tên là **Hoàng Đỗ Gia Nguyên** hay còn có biệt danh là **Chúa tể Wibu** ❄
+Tớ tên là **Hoàng Đỗ Gia Nguyên** hay còn có biệt danh là **Shiron** ❄
 
 
 
@@ -34,9 +34,9 @@ Tớ tên là **Hoàng Đỗ Gia Nguyên** hay còn có biệt danh là **Chúa 
 
 
 
-- ❄ Thích nghe nhạc Remix-
+- ❄ Thích nghe nhạc Remix-Chill
 
-- ❄ Thích chơi game (LQM) 
+- ❄ Thích chơi game (Garena Liên Quân Mobile,Play Together) 
 
 - ❄ Thích lướt Facebook, Tiktok, xem hoạt hình
 
