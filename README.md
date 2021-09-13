@@ -46,19 +46,19 @@ Tớ tên là **Hoàng Đỗ Gia Nguyên** hay còn có biệt danh là **Chúa 
 
 
 
-- ❄ Facebook : **[Hoàng Đỗ Gia Nguyên]-(https://www.facebook.com/HoangDoGiaNguyen.Official/)**
+- ❄ Facebook : **[Hoàng Đỗ Gia Nguyên->https://www.facebook.com/HoangDoGiaNguyen.Official/]**
 
-- ❄ Gmail : **[hoangdogianguyenvpbq@gmail.com](https://gmail.com)**
+- ❄ Gmail : **[hoangdogianguyenvpbq@gmail.com]**
 
-- ❄ Github : **[Hoàng Đỗ Gia Nguyên]-(https://github.com/hoangdogianguyenprocoder/)**
+- ❄ Github : **[https://github.com/hoangdogianguyenprocoder/]**
 
-- ❄ Zalo : **[Hoàng Đỗ Gia Nguyên]-(-0335953652)**
+- ❄ Zalo : **[Hoàng Đỗ Gia Nguyên->0335953652]**
 
-- ❄ Momo : **[Hoàng Đỗ Gia Nguyên]-(0335953652)**
+- ❄ Momo : **[Hoàng Đỗ Gia Nguyên->0335953652]**
 
-- ❄ Mbbank : **[Hoàng Đỗ Gia Nguyên]-(0335953652)-(0700163926666)** 
+- ❄ Mbbank : **[Hoàng Đỗ Gia Nguyên->0335953652->0700163926666]** 
 
-- ❄ Sacombank : **[Hoàng Đỗ Gia Nguyên]-(050124512112)**
+- ❄ Sacombank : **[050124512112-Hoàng Đỗ Gia Nguyên]**
 
 - ❄ Website : **[HoangDoGiaNguyen]()**
 
