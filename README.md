@@ -52,21 +52,21 @@ Tớ tên là **Hoàng Đỗ Gia Nguyên** hay còn có biệt danh là **Shiron
 
 
 
-- ❄ Facebook : **Hoàng Đỗ Gia Nguyên->https://www.facebook.com/HoangDoGiaNguyen.Official/**
+- ❄ Facebook : [Hoàng Đỗ Gia Nguyên](https://www.facebook.com/HoangDoGiaNguyen.Official)
 
-- ❄ Gmail : **hoangdogianguyenvpbq@gmail.com**
+- ❄ Gmail : [hoangdogianguyenvpbq@gmail.com](hoangdogianguyenvpbq@gmail.com)
 
-- ❄ Github : **https://github.com/hoangdogianguyenprocoder/**
+- ❄ Github : [Hoàng Đỗ Gia Nguyên](https://github.com/hoangdogianguyenprocoder/)
 
-- ❄ Zalo : **0335953652**
+- ❄ Zalo : [Zalo](0335953652)
 
-- ❄ Momo : **Hoàng Đỗ Gia Nguyên->0335953652**
+- ❄ Momo : [Hoàng Đỗ Gia Nguyên](0335953652)
 
-- ❄ Mbbank : **Hoàng Đỗ Gia Nguyên->0335953652->0700163926666** 
+- ❄ Mbbank : [Hoàng Đỗ Gia Nguyên](0700163926666)
 
-- ❄ Sacombank : **050124512112->Hoàng Đỗ Gia Nguyên**
+- ❄ Sacombank : [Hoàng Đỗ Gia Nguyên](050124512112)
 
-- ❄ Website : **HoangDoGiaNguyen**
+- ❄ Website : [HoangDoGiaNguyen]()
 
 - -------------------------------------------------
 - **Thanks For Reading**  👑
