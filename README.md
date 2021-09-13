@@ -20,7 +20,7 @@ Tớ tên là **Hoàng Đỗ Gia Nguyên** hay còn có biệt danh là **Shiron
 
 - ❄ Ngày sinh : **29/10/200x**
 
-- ❄ Chiều cao : **1m7**
+- ❄ Chiều cao : **1m72**
 
 - ❄ Cân nặng : 56 
 
@@ -38,7 +38,7 @@ Tớ tên là **Hoàng Đỗ Gia Nguyên** hay còn có biệt danh là **Shiron
 
 - ❄ Thích chơi game (Garena Liên Quân Mobile,Play Together) 
 
-- ❄ Thích lướt Facebook, Tiktok, xem hoạt hình
+- ❄ Thích lướt Facebook, Tiktok, Xem hoạt hình
 
 
 
