@@ -18,11 +18,11 @@ Tớ tên là **Hoàng Đỗ Gia Nguyên** hay còn có biệt danh là **Shiron
 
 - ❄ Giới tính: **Nam**
 
-- ❄ Gu: **Nguyễn Nhật Quỳnh Hoa**
+- ❄ Gu: **Đéo có 🙂**
 
 - ❄ Học sinh **THPT**
 
-- ❄ Mối quan hệ **Hẹn Hò**
+- ❄ Mối quan hệ **Độc Thân**
 
 - ❄ Ngày sinh : **29/10/200x**
 
