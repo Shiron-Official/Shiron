@@ -52,7 +52,7 @@ Tớ tên là **Hoàng Đỗ Gia Nguyên** hay còn có biệt danh là **Shiron
 
 
 
-- ❄ Facebook : [Hoàng Đỗ Gia Nguyên](https://www.facebook.com/HoangDoGiaNguyen.Official)
+- ❄ Facebook : [Hoàng Đỗ Gia Nguyên](https://www.facebook.com/HoangDoGiaNguyenOwO)
 
 - ❄ Gmail : [hoangdogianguyenvpbq@gmail.com](hoangdogianguyenvpbq@gmail.com)
 
