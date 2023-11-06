@@ -1,6 +1,6 @@
 <h1> Xin chào <img src="https://i.imgur.com/sl26aUs.gif" width="25"></h1> 
 
-Tớ tên là **Hoàng Đỗ Gia Nguyên** hay còn có biệt danh là **Shiron** ❄
+Tôi tên là **Hoàng Đỗ Gia Nguyên** hay còn có biệt danh là **Cooller** ❄
 
 
 
@@ -18,9 +18,9 @@ Tớ tên là **Hoàng Đỗ Gia Nguyên** hay còn có biệt danh là **Shiron
 
 - ❄ Giới tính: **Nam**
 
-- ❄ Gu: **Đéo có 🙂**
+- ❄ Gu: **Chưa có🥲**
 
-- ❄ Học sinh **THPT**
+- ❄ Công việc **Đang tìm hiểu...**
 
 - ❄ Mối quan hệ **Độc Thân**
 
@@ -28,11 +28,11 @@ Tớ tên là **Hoàng Đỗ Gia Nguyên** hay còn có biệt danh là **Shiron
 
 - ❄ Chiều cao : **1m72**
 
-- ❄ Cân nặng : **56**
+- ❄ Cân nặng : **61**
 
-- ❄ Tính cách : **lạnh lùng**,**ít nói**
+- ❄ Tính cách : **hài hước**,**ít nói**
 
-- ❄ Tôi học tập và  sinh sống tại **Đồng Nai**
+- ❄ Tôi làm việc và  sinh sống tại **Đồng Nai**
 
 
 
@@ -40,11 +40,11 @@ Tớ tên là **Hoàng Đỗ Gia Nguyên** hay còn có biệt danh là **Shiron
 
 
 
-- ❄ Thích nghe nhạc Remix-Chill
+- ❄ Thích nghe nhạc buồn và chill.
 
-- ❄ Thích chơi game (Garena Liên Quân Mobile,Play Together) 
+- ❄ Thích chơi game (Garena Liên Quân Mobile,Play Together,Gta 5,các game ma kinh dị...) 
 
-- ❄ Thích lướt Facebook, Tiktok, Xem hoạt hình
+- ❄ Thích lướt Facebook, Tiktok, Xem gái=)))
 
 
 
@@ -52,11 +52,11 @@ Tớ tên là **Hoàng Đỗ Gia Nguyên** hay còn có biệt danh là **Shiron
 
 
 
-- ❄ Facebook : [Hoàng Đỗ Gia Nguyên](https://www.facebook.com/HoangDoGiaNguyenOwO)
+- ❄ Facebook : [Hoàng Đỗ Gia Nguyên](https://www.facebook.com/hdgnkw)
 
 - ❄ Gmail : [hoangdogianguyenvpbq@gmail.com](hoangdogianguyenvpbq@gmail.com)
 
-- ❄ Github : [Hoàng Đỗ Gia Nguyên](https://github.com/hoangdogianguyenprocoder/)
+- ❄ Github : [Hoàng Đỗ Gia Nguyên](https://github.com/Shiron-Official)
 
 - ❄ Zalo : [Zalo](0335953652)
 
